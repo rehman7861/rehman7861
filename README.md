@@ -19,9 +19,7 @@
 
 📓 I’m currently learning Genrative AI... 😭
 
-📧 abdul7816rehman@gmailcom
 
-🎨 Portfolio: https://portfolio-f2fd1.web.app/
 
 �
  
