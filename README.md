@@ -19,15 +19,7 @@
 
 📓 I’m currently learning Genrative AI... 😭
 
-📧 abdul7816rehman@gmailcom
 
-🎨 Portfolio: https://portfolio-f2fd1.web.app/
-
-💼 LinkedIn: https://www.linkedin.com/in/abdul-rehman-15b321299
-
-📷 Instagram : https://www.instagram.com/thetechso/
- 
-<h2>Tech Stack</h2>
 
 <table width="100">
 <tr>
