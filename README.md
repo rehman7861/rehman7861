@@ -7,11 +7,8 @@
 	
 
 
-🤵 Founder & CEO of @techso 🤖
 
-🔥 Frontend Web Developer 
-	
-💰 RISING TALENT at UPWORK ✅
+🔥 Frontend Web Developer
 	
 📢 Digital Marketing (Google Garage) 
 
